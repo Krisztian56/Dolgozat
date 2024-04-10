@@ -1,1 +1,1 @@
-# Dolgozat
+Dobos Krisztian
